@@ -1,0 +1,1 @@
+![]([http://url/to/img.png](https://maludesign.vn/wp-content/uploads/2022/11/phan-khuc-khach-hang-e1660040698833.jpg)https://maludesign.vn/wp-content/uploads/2022/11/phan-khuc-khach-hang-e1660040698833.jpg)
