@@ -1,1 +1,0 @@
-![MasterHead]([https://cdn.pixabay.com/photo/2024/01/07/18/51/ai-generated-8493999_1280.jpg](https://maludesign.vn/wp-content/uploads/2022/11/phan-khuc-khach-hang-e1660040698833.jpg)https://maludesign.vn/wp-content/uploads/2022/11/phan-khuc-khach-hang-e1660040698833.jpg)
